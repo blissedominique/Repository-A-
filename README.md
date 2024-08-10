@@ -5,9 +5,9 @@ Repository A - Test Repo
 
 ### Education
 
-International School Of Bangkok (ISB)| High-School Diploma
+International School Of Bangkok (ISB) | High-School Diploma
 June 2010 in Bangkok, Thailand 
-
+ 
 • Vice President of African Awareness Club 
 • Selected Attendee of Interscholastic Association Of South East Asia Schools (IASAS Dance) Students partake in workshops and prior to event generate 20 minute collaboration to be presented amongst other Southeast Asian schools in Tai Pei, Taiwan. 
 • Cultural Convention; selected participant 
